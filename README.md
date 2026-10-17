@@ -1,0 +1,2 @@
+# premium-torchon-ground-001-torchon-ground-half-stitch-l
+Struggling to organize your torchon ground and half stitch lace patterns without losing track of stitches, techniques, or project progress? The Torchon Ground &amp; Half Stitch Lace Craft Hub eliminates scattered notes and chaotic pattern management in one unified digital workspace.  This Notion template is purpose-built for lace makers who need a cent
